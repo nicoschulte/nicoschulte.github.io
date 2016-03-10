@@ -1,1 +1,0 @@
-# nicoschulte.github.io
